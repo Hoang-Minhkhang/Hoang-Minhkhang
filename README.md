@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Hoang-Minhkhang
 - 👀 I’m interested in technology
-- 🌱 I’m currently learning at l* v*n h** decondary school 
+- 🌱 I’m currently learning at l* v*n h** secondary school 
 - 💞️ I’m collaborating on Phuong Nam Unlimited Company  
 - 📫 How to reach me : Go To Phuong Nam Unlimited Company 
 - 😄 Pronouns: ...
