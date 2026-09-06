@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @Hoang-Minhkhang
 - 👀 I’m interested in technology
-- 🌱 I’m currently learning at l* v*n h** secondary school 
-- 💞️ I’m collaborating on Phuong Nam Unlimited Company  
-- 📫 How to reach me : Go To Phuong Nam Unlimited Company 
+- 🌱 I’m currently learning at Duong Van Duong hish school
+- 💞️ I’m collaborating on Nothing
+- 📫 How to reach me : i don't know  
 - 😄 Pronouns: ...
-- ⚡ Fun fact: you can not ..... 
+- ⚡ Fun fact: i am student 
 
 <!---
 Hoang-Minhkhang/Hoang-Minhkhang is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
