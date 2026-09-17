@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Hoang-Minhkhang
 - 👀 I’m interested in technology
-- 🌱 I’m currently learning at Duong Van Duong high school
+- 🌱 I’m currently studying at Duong Van Duong high school
 - 💞️ I’m collaborating on Nothing
 - 📫 How to reach me : i don't know  
 - 😄 Pronouns: ...
